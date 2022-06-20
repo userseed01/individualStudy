@@ -1,12 +1,3 @@
 # study
 
-내 꿈은 개발덕후
-cnldjqgkrhtlvek
-cnlQhgkwk
-qnwkehlrpgowntpdy
-gyehgkrpgowntpdy
-whgdmsrhtdpcnldjqgkrpgowntpdy
-ehsaksgdlqjfrpgowntpdy
-tjdrhdgkrpgowntpdy
-whgdmsrufrhkdlTdjTdmauswhgrpTek
-cnfrmsgkrltlfgek...
+20220620
